@@ -1,0 +1,114 @@
+## Contact Joffrey Williams
+- 7734153834 (Mobile)
+- joffrey.williams1@gmail.com People Development | Operations | Business Services
+- Greater Chicago Area
+- www.linkedin.com/in/jjwwil
+- (LinkedIn)
+- Summary
+- Top Skills
+- As a Business Field Services Development Coach provides data
+- RStudio analysis, design, technician development, documentation , and
+- Quality Control support for network quality/process improvements for more than 500
+- Transmission Control Protocol (TCP)
+- technicians, 37 Business Field Services managers and five Business
+- Area Managers engaged in the installation and repair of AT&T's
+- Certifications
+- business customers covering five midwest states.
+- Learning Design Thinking: Lead
+- Change in Your Organization
+- Experienced Operations Manager with a 20+ year track record
+- Project Portfolio Management
+- at AT&T of leading teams, developing employees and utilizing
+- Foundations
+- complex data to inform strategic decisions and drive operational
+- Statistics Foundations 1: The Basics
+- improvements.
+- Data Science Foundations:
+- Fundamentals
+- Data Analyst Nanodegree •Varied background in network operations, project management, and
+- direct
+- management experience with AT&T.
+- •Possess a unique combination of leadership skills, with excellent
+- organization and prioritization abilities.
+- •Demonstrated ability to lead teams, implement change, exceed
+- targets and drive organizational results.
+- Specialties: operational management, supervisory skills, team
+- building and collaboration, training and employee development and
+- team leadership.
+- Experience
+- AT&T
+- 28 years
+- Sr. Specialist Development Manager
+- December 2019 - Present (5 years 11 months)
+- Greater Chicago Area
+- In my role as a Sr. Specialist Development Manager at AT&T, I support
+- continuous performance improvement for managers and technicians across
+- Page 1 of 3five Midwest states. I collaborate with various teams to implement process
+- improvements, resulting in improved customer satisfaction levels and reduced
+- service installation intervals.
+- Manager Network Services(Business Services)
+- September 2014 - December 2019 (5 years 4 months)
+- Greater Chicago Area
+- Managed all business operation aspects for a team of technicians in the
+- Chicago metropolitan area, focusing on installation, maintenance, and testing
+- activities for various services. Led projects to resolve network design issues
+- for the City of Chicago Fire department and upgrade City of Chicago public
+- schools to ADE and ASE service, resulting in contract renewal with AT&T.
+- Network Services Manager(Installation & Maintenance)
+- February 2011 - September 2014 (3 years 8 months)
+- I managed a crew of 29 Network technicians for installation, maintenance,
+- and repair of high capacity circuits. I handled customer escalations, improved
+- customer satisfaction, and coordinated emergency responses during facility
+- outages.
+- Manager Technical Support Analysis
+- April 2010 - February 2011 (11 months)
+- Greater Chicago Area
+- In my role as Manager Technical Support Analysis at AT&T, I was responsible
+- for providing technical support to system users at Sara Lee corporation.
+- I evaluated user needs, defined technical problems, and worked with
+- engineering staff to determine solutions. Additionally, I handled customer
+- reported incident outages from beginning to resolution, ensuring minimal
+- downtime for the company.
+- Uverse Operations Manager
+- February 2008 - April 2010 (2 years 3 months)
+- In my role as Uverse Operations Manager at AT&T, I successfully led a team
+- of technicians to provide top-notch installation and repair services for U-
+- verse video services. I managed customer escalations, collaborated with
+- other work groups, and ensured timely resolution of service issues. My strong
+- performance management and communication skills were instrumental in
+- developing and correcting technician performance.
+- Special Service Manager
+- June 2005 - February 2008 (2 years 9 months)
+- Greater Chicago Area
+- Page 2 of 3As a Special Service Manager at AT&T in the Greater Chicago Area, I led
+- a team of technicians to achieve performance and quality objectives for
+- special service circuit levels. Handling customer escalations and ensuring
+- timely resolutions improved customer service results. Evaluating technician
+- performance led to a 10% decrease in repeat dispatches.
+- Customer Systems Technician
+- November 1997 - June 2005 (7 years 8 months)
+- Chicago, Illinois, United States
+- As a Customer Systems Technician I actively troubleshot and resolved
+- technical issues affecting customers' internet, phone, and television
+- services as well has data services. I installed and repaired equipment,
+- maintained system reliability, communicated effectively with stakeholders, and
+- documented my work.
+- United States Air Force
+- Staff Sergeant - Communication Navigation Systems Specialist
+- December 1989 - May 1997 (7 years 6 months)
+- United States
+- As a Communications/Navigations systems specialist I operated, maintained,
+- inspected, repaired, and planned the upkeep of Aircraft Communication and
+- Navigation Systems. This involved working with radios, radar, and other
+- navigation equipment, developing maintenance schedules, verifying the
+- functionality of avionics, performing necessary fixes and upgrades, and
+- contributing to performance standards and maintenance procedures.
+- Education
+- University of Illinois Chicago
+- Master of Business Administration - MBA, Business Analytics | Finance |
+- Marketing | Operations | Economics · (September 2019 - December 2021)
+- DePaul University
+- Master of Science - MS, Telecommunication System’s · (May
+- 2003 - December 2005)
+- Page 3 of 3
+
